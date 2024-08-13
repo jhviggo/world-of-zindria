@@ -130,7 +130,7 @@ They have set up a camp/checkpoint and are checking caravans going through.
 We all hide in the shelves and stuff in the caravan.
 We made it through the camp with Maeve's charm!! Wohoo
 
-[[Master Pandelume]] was dubh's master and we're trying to find and save him (dubh's mission)
+[[Master Pandelume (dead)]] was dubh's master and we're trying to find and save him (dubh's mission)
 Voldooron was bought as a slave and treated like shit. His body is covered in scars.
 
 crypt doctor [[Reiley Ripert]] is part of the [[Circle of Zealots]].
@@ -182,7 +182,7 @@ we're getting 2 rooms at the inn for 3 nights.
 The barmaid is called [[Zindril]].
 We get some beer and grilled fish.
 
-We're looking for [[Master Whitmoore]] (who's wanted by the [[Mages of Divinity]]) in [[Za'le]]
+We're looking for [[Master Whitmoore (dead)]] (who's wanted by the [[Mages of Divinity]]) in [[Za'le]]
 
 
 

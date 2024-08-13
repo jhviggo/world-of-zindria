@@ -1,4 +1,4 @@
-We left the [[Ashen Kin]] camp with two hunters, going towards the cave where [[Master Whitmoore]] should be residing.
+We left the [[Ashen Kin]] camp with two hunters, going towards the cave where [[Master Whitmoore (dead)]] should be residing.
 One of the hunters taught voldooron how to catch some scorpion creature to eat and we saw a frog/lizard creature which often finds water. So we can follow them for water.
 
 Voldooron extracted some poison from the scorpion and got a vial of itchy hallucination.

@@ -4,7 +4,7 @@ Maeve was given 500g to take care of him.
 
 We also got ~70g from the race yesterday!
 
-We were told we can find [[Reliah Lueveen]] at the local clan [[Runaway Muck]], that also have connections with [[Master Whitmoore]]. 
+We were told we can find [[Reliah Lueveen]] at the local clan [[Runaway Muck]], that also have connections with [[Master Whitmoore (dead)]]. 
 
 We asked [[Nimoras Tyr Invenir aka Nim]] some questions and nim is a little taken aback by it, acting fairly shy. She's mostly here to help protect Maeve.
 
@@ -16,7 +16,7 @@ We find the café called [[Gentle Gust]] and go inside and chat with Nim. He's f
 After breakfast we go out trying to find the [[Runaway Muck]] clan, so we can talk to [[Reliah Lueveen]]. We find the clan and see a Leonin sitting on a bar stool. He's wearing a fancy leather outfit and golden shoulder plates. And a large golden belt, with a saber. He stands out a lot.
 We see Reliah sitting in the bar and someone who looks exactly like Miquel from [[Miguel Smoke House]], but it's not him. Might be his twin.
 Reliah was talking to someone and it seems they are in a bad mood. So we're buying some beer to defuse the situation. Reliah is talking to [[Huntsman Drion]] and they accept our beer.
-The [[Ashen Kin]] is the ones in [[Master Whitmoore]] and Drion is the leader's brother.
+The [[Ashen Kin]] is the ones in [[Master Whitmoore (dead)]] and Drion is the leader's brother.
 In return for a job we can have Drion lead us to Whitmoore.
 The job is that a bunch of Gnolls have been setting up base in Drion's territory. And he doesn't have enough men to handle it. Drion sent us out with one of his men named Cross.
 

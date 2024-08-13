@@ -1,4 +1,4 @@
-We're standing at the edge of the [[Scourches Scarians]] in the [[Crimson Savannah]] somewhere between [[Chariz]] and [[Red-Razkar]]. Dubh sent a message to [[Master Pandelume]] and got a message back saying he wouldn't say much and didn't know where he way, and he sounded to be in trouble. Dubh got a signal back with a direction where the message came from.
+We're standing at the edge of the [[Scourches Scarians]] in the [[Crimson Savannah]] somewhere between [[Chariz]] and [[Red-Razkar]]. Dubh sent a message to [[Master Pandelume (dead)]] and got a message back saying he wouldn't say much and didn't know where he way, and he sounded to be in trouble. Dubh got a signal back with a direction where the message came from.
 
 We decide to follow the citizen of Chariz to make sure they make it to the next Red-Razkar. We hurry to find Nylah, Zantra's girlfriend. We have Dubh cast sending trying to contact [[Zantra]] to see if she's still alive. And she is in fact! The blue Furry lives!
 Nylah slaps Dubh for being part of the plan to get her out of Chariz without her consent.

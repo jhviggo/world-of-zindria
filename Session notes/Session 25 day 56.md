@@ -1,4 +1,4 @@
-[[Master Whitmoore]] is a master of the ravens, with [[Master Pandelume]] (dubh's master).
+[[Master Whitmoore (dead)]] is a master of the ravens, with [[Master Pandelume (dead)]] (dubh's master).
 voldooron had the idea of getting the guards attention and basically fight them to become wanted, so that whitmoore would notice a wanted poster and find us.
 I suggested finding a criminal group that maybe keeps track of people going in and out of town.
 

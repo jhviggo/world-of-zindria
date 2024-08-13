@@ -17,7 +17,7 @@ greater short rest. Got all my stuff back except for 1 hp.
 We start walking towards the scout's camp and we see banners with white handprints on them. These are the banners of the [[Ashen Kin]]. On the way there are hidden outposts, where the scouts make gestures to, to show that we are with the clan.
 As we enter the camp, there are 2 guards and one of them blow a horn, and we see 5-6 scouts around us.
 We get into the main camp and it's a buzzling oasis with lots of people around.
-As we enter, the chieftain [[Mayzar the Canyon King]] comes down. He is not interested in showing us to [[Master Whitmoore]], but he agreed to show us to the cave he's staying in, but he also said that it was probably full of traps.
+As we enter, the chieftain [[Mayzar the Canyon King]] comes down. He is not interested in showing us to [[Master Whitmoore (dead)]], but he agreed to show us to the cave he's staying in, but he also said that it was probably full of traps.
 We also offered to help the scout who is going to show us to the cave. He said we could take a 1-day detour to a sister camp, to see if they're still alive, since they haven't heard from them in a while.
 
 

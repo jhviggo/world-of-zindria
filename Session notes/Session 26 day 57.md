@@ -37,6 +37,6 @@ Some of the guardian's followers are from multiple wealthy clans.
 She remembers only one person, a [[sky monarch Asral]] from [[luna zilrith]] province (east of [[Sundale kingdom]]). He's most likely the person who sent the order to kidnap her.
 
 [[Maeve's sister]] had a dream, where a shaded/hidden person gave her the crystal that Maeve carries, and she woke up actually having the crystal. [[Maeve's Crystal]].
-Maeve's sister has information about [[Master Whitmoore]], he can be found east of the city in the canyon where the spiders are... [[Huntsman's Canyon]]
+Maeve's sister has information about [[Master Whitmoore (dead)]], he can be found east of the city in the canyon where the spiders are... [[Huntsman's Canyon]]
 
 [[Voldooron]] is quite sad about all of this information.

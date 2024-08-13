@@ -8,7 +8,7 @@ The hunter wrapped his sister in some fabric and wanted to bring her back to the
 We leave the camp by the other exit and come out to a more peaceful place with green bushes and stuff.
 We have a greater short rest.
 
-We continue traveling towards [[Master Whitmoore]] and we're trying to find the right entrance.
+We continue traveling towards [[Master Whitmoore (dead)]] and we're trying to find the right entrance.
 The hunter finds the entrance after a while. There's a huge open cave. There are signs of activity by the entrance. We're at the [[wailing caverns]]. We can hear a low wailing sound going through the cave.
 The hunter will go back to his camp and not lead us further. The tells us that Master Whitmoore is a wizard and he probably has counter measures/traps.
 

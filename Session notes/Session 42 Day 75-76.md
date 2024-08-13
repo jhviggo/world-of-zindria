@@ -1,9 +1,9 @@
 We went through the portal from [[Stormgard]] to [[Za'le]], in Reliah's inn.
-[[Reliah Lueveen]] offers us some coffee and makes some breakfast too. From talking with Reliah we realize that the dwarves that attacked [[Chariz]] probably had more information about the war than they should. Someone probably informed them to attack the city. Reliah says that [[Master Pandelume]] probably just has exhaustion and mana sickness. It's fine.
+[[Reliah Lueveen]] offers us some coffee and makes some breakfast too. From talking with Reliah we realize that the dwarves that attacked [[Chariz]] probably had more information about the war than they should. Someone probably informed them to attack the city. Reliah says that [[Master Pandelume (dead)]] probably just has exhaustion and mana sickness. It's fine.
 Someone knocks on the door. An individual in a fur coat and 2 swords comes in, Maeve knows who it is, his name is [[Elia]]. After him comes in [[Celia de Luinn]], Maeve's little sister. It was Celia who opened the portal that got us here. She's apparently quite strong?
 She was also the one that planned his rescue and sent us in that direction.
-She's in a relationship with [[Master Pandelume]]!
-[[Master Pandelume]] cast a curse on himself so he could only talk to those he trusts, that way he couldn't spill any of his research or information to the [[Mages of Divinity]].
+She's in a relationship with [[Master Pandelume (dead)]]!
+[[Master Pandelume (dead)]] cast a curse on himself so he could only talk to those he trusts, that way he couldn't spill any of his research or information to the [[Mages of Divinity]].
 Celia will book the [[Aroma Atlas]] restaurant to celebrate that Pandelume is back.
 
 Someone in town needs [[Nimoras Tyr Invenir aka Nim]]'s help. It's a woman from her past, [[Zithrel]].
