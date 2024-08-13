@@ -179,7 +179,7 @@ We did not go to the Rising Sun Inn because the guards are kinda looking for us.
 We went to another smaller inn called the [[Second Scabbard]].
 
 we're getting 2 rooms at the inn for 3 nights.
-The barmaid is called [[zindril]].
+The barmaid is called [[Zindril]].
 We get some beer and grilled fish.
 
 We're looking for [[Master Whitmoore]] (who's wanted by the [[Mages of Divinity]]) in [[Za'le]]
