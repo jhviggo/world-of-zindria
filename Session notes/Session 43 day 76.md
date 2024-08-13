@@ -10,3 +10,11 @@ Nim says just kinda joined our team and was selected to help us by [[Celia de Lu
 
 We go back and sleep.
 In the morning Reliah leaves early and has set breakfast. As we're eating [[Master Pandelume]] comes down the stairs. He fixes stuff in Dubh's spell book. He also says he knew that the letter he had Dubh deliver was gonna stir up trouble. Pandelume mentions that Nim wears clothes of the institution of a college and is a student.
+
+Dubh and Pandelume go away to talk. He tells Dubh that he had been dealing with the [[Mages of Divinity]] and the letter he sent was because of his research and as a favor to the [[Dread Guard]]. He's researching the storms in the [[Crimson Savannah]] to try and harness them. He's also looking into where they come from and why they are there. There are very little history of them, indicating that they didn't always used to be there, they're kinda new. The have a connection with the powers that keep [[Zarephine Ca'al]] floating, but that magic is decaying and fading away. The magic keeping the islands up are being lifted by winds over to the savannah, causing the storms. This discovery shows that the great nation of Zeraphine is falling apart, literally. And the Mages of Divinity doesn't like that being spread into the news.
+Iridium Ca'al is one of the deity decaying with the cover in Zarephine, but there's also another deity, but Pandelume doesn't know which.
+Dubh tells Pandelume about the nightmare in Chariz, where he woke up in the inn. Pandelume knows something, but he doesn't want to tell Dubh yet. Pandelume gets very mad when he realizes Dubh made a pact with the nightmare. He's very mad.
+Dubh's magic crossbow is not arcane magic, is druidic.
+
+I look at Dubh's bow and there's a crystal in the middle which used to have spirits in it. Maeve also looks at it and she notices that the crystal has to be replaced, it can't be refilled. It's just a normal crystal/spiritual stone that a lot of Druids can make.
+
