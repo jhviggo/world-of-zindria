@@ -1,5 +1,5 @@
 * [[Master Pandelume]]'s apprentice
-* part of the [[Ravens]] group
+* part of the [[Forsaken Ravens]] group
 * has black fur, which is uncommon for tabaxi
 * found 5 years ago and raised by Pandelume
 * has nightmares on occasion

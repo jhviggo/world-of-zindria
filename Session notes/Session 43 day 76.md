@@ -7,3 +7,6 @@ We go out of town towards the (Raven towers ?), we see some very chill clergymen
 We sit and chat. Maeve tells us about here sister. Dubh might want to ask [[Celia de Luinn]] for a job, since she works with the ravens. I might wanna ask the professor about [[Zargeth]] for some information, just in case he comes back for me and the contract.
 We ask Maeve about [[Maeve's Crystal]] that she lend to [[Dilon]] to investigate and got back, and her sister said it was a [[Void Beacon]]. (Might be used for tracking her by her sister)
 Nim says just kinda joined our team and was selected to help us by [[Celia de Luinn]]. But Nim also doesn't know why she was selected to help us.
+
+We go back and sleep.
+In the morning Reliah leaves early and has set breakfast. As we're eating [[Master Pandelume]] comes down the stairs. He fixes stuff in Dubh's spell book. He also says he knew that the letter he had Dubh deliver was gonna stir up trouble. Pandelume mentions that Nim wears clothes of the institution of a college and is a student.
