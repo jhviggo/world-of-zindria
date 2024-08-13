@@ -18,4 +18,7 @@ Dubh's magic crossbow is not arcane magic, is druidic.
 
 I look at Dubh's bow and there's a crystal in the middle which used to have spirits in it. Maeve also looks at it and she notices that the crystal has to be replaced, it can't be refilled. It's just a normal crystal/spiritual stone that a lot of Druids can make.
 
-[[Master Illiya]]
+We go to the party in the evening for saving Pandelume. There are so many people we know and a bunch we don't.
+[[Master Pandelume]], [[Master Whitmoore]], [[Mirilla cyran Reymire]], [[Zanzel]], [[Master Eshmiel Byzant]], [[Master Beckon of Kulra]], [[Celia de Luinn]], [[Tyroz]], [[Reliah Lueveen]] and more.
+
+I sat with Dubh and Zanzel. She's a mage the group met just before I joined.
