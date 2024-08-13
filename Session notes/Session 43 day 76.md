@@ -20,5 +20,16 @@ I look at Dubh's bow and there's a crystal in the middle which used to have spir
 
 We go to the party in the evening for saving Pandelume. There are so many people we know and a bunch we don't.
 [[Master Pandelume]], [[Master Whitmoore]], [[Mirilla cyran Reymire]], [[Zanzel]], [[Master Eshmiel Byzant]], [[Master Beckon of Kulra]], [[Celia de Luinn]], [[Tyroz]], [[Reliah Lueveen]] and more.
+All four masters of the [[Forsaken Ravens]] are here.
 
-I sat with Dubh and Zanzel. She's a mage the group met just before I joined.
+[[Rogul]] challenges Voldooron to drink, but Voldooron isn't feeling up for it because of all of the big-shots at the party.
+I sat with Dubh and Zanzel. She's a mage the group met just before I joined. She pranked Dubh xD
+I have a drinking match with Zanzel, who often drinks with [[Rogul]].
+
+Celia has heard about two luxodon working as guards for a king, they were around the same age as [[Voldooron]] and started working there around the same time as he got separated from his family.
+
+Pandelume and Whitmoore suddenly notice something weird. Dubh get a weird feeling and starts feeling the creatures from his nightmare. [[Grey Haven]] from the mages of divinity shows up. Celia doesn't get time stopped and stands up. Suddenly 3 Nuali hunters show up and silence spells gets cast. A golden winged creature appears from out the windows.
+Grey Haven is holding the masters of the ravens in a spell. Celia casts power word kill on Pandelume and he's dead. She tells maeve that he cannot live because of what he knows.
+We attack the intruders, but Celia is trying to get Maeve to let them kill all the Ravens.
+[[Master forklite]] rides the golden creature towards the restaurant and a huge sky ship. It's the mages of divinity.
+
