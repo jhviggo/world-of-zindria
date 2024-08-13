@@ -18,3 +18,4 @@ Dubh's magic crossbow is not arcane magic, is druidic.
 
 I look at Dubh's bow and there's a crystal in the middle which used to have spirits in it. Maeve also looks at it and she notices that the crystal has to be replaced, it can't be refilled. It's just a normal crystal/spiritual stone that a lot of Druids can make.
 
+[[Illiya]]
