@@ -12,7 +12,7 @@ We accept the offer in the letter to get help. So the raven leads us towards Za'
 We manage to get into the city and the people don't seem to react to the Raven as if it's invisible. 
 The bird leads us through the city and we hear people gossip about the trouble that happened at [[Aroma Atlas]]. We see some [[Nuani Hunters]] at the entrance of Aroma Atlas. The raven leads us to a smaller back alley and a side door start to glow like the raven. There's a door with a black void behind it. Dubh opens it and look, we talk about if we should go in, but we get sucked into the void and suddenly stand in a bright room. There's a little island plato with an alter and a small fountain, creek and bridge. But the island is not in the water, it is in the [[Ethereal Sea]] it's in the nothingness of the galaxy, a place called [[Fortunes Favor]].
 There's a building on this island and there are signs of people having been here not long ago. We go into the building and see a statue. There's also a shadowing blurred-out creature inside, multiple show up. There are in total 5 blurred-out creatures, and they all seem to be staring at us. One of them step towards us and we notice a huge Scythe on his back. It's [[Sarah Bruz]], someone the players met previously. She leads us to [[Nieta]] to explain what's going on. They're a group called the [[Palensia Pioneers]]. We can join them if we complete a small test. If we join we'll have our memories purged but we'll have protection from the mages. She sends out a letter to Maeve, Voldooron and Nim, but Nim can't be reached.
-We get escorted to a house, which if we complete the misson, will be ours.
+We get escorted to a house, which if we complete the mission, will be ours.
 
 
 
