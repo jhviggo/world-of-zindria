@@ -1,2 +1,2 @@
-* [[Maeve]]'s sister [[Celia de Luinn]] is the Void Empress
+* [[Maeve Luin]]'s sister [[Celia de Luinn]] is the Void Empress
 * Leader of the [[Dread Guard]]

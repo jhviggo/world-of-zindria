@@ -20,7 +20,7 @@ Then we go back to the [[Second Scabbard]] and see some leonin (lion person).
 We also talk to the inkeeper about [[head-runner Spiraz]] and how we helped the other bar.
 
 We were introduced to a young female, [[Celia de Luinn]] in the downstair shisha area.
-This is [[Maeve]]'s little sister. They haven't seen each other in 1 year, but the sister looks at least 5 years older.
+This is [[Maeve Luin]]'s little sister. They haven't seen each other in 1 year, but the sister looks at least 5 years older.
 She holds no resentment for Maeve taking the crystal and leaving, but some people came and kidnapped the sister.
 But the sister doesn't really remember much of what happened. But they took her to the Fay realm.
 She were there for years in the fay realm but only months in our world.

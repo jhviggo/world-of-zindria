@@ -1,4 +1,4 @@
-[[Maeve]] and her sister went out for their spa day. And meanwhile I got lost in the city. [[Reliah Lueveen]] came to find me and the others, to take us out to lunch with [[Maeve]]. He knows the city very well and takes shortcuts and get greeted by the locals.
+[[Maeve Luin]] and her sister went out for their spa day. And meanwhile I got lost in the city. [[Reliah Lueveen]] came to find me and the others, to take us out to lunch with [[Maeve Luin]]. He knows the city very well and takes shortcuts and get greeted by the locals.
 We were lead to the [[Aroma Atlas]] restaurant (the tallest building in the city).
 There is a Loxodon whos the main chef, [[Sir Beroldus, the spice king]].
 We get a huge meal with tons of meats and especially Garloc, a huge boar.
@@ -11,7 +11,7 @@ From the window we can see an airship dock at one of the other tall towers, as i
 
 I rolled a fucken nat 1 trying to history check the ship xD
 
-[[Maeve]] has seen the banner before in [[Iridium]] from one of the Houses of Celion and more specifically House Sherwood. This house might have competed with the Richmonds as far as Dubh remembers. 
+[[Maeve Luin]] has seen the banner before in [[Iridium]] from one of the Houses of Celion and more specifically House Sherwood. This house might have competed with the Richmonds as far as Dubh remembers. 
 
 We return to the [[Second Scabbard]] and go to sleep.
 
