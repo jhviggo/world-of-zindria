@@ -2,3 +2,5 @@ We wake up in [[Master Whitmoore (dead)]]'s lair and see [[Marcus meridius]], [[
 We also see [[Zim]] dead on the floor.
 
 As we start to fight, Reliah leaves and we fight the dreadguard and Marcus. Dubh fears them and they leave.
+We start running out of the cave and Dubh gets downed alt I almost die. But we survived and set up camp. Then in the night 2 huntsmen come to the cave entrance. One of them is [[Crox]] who was the one who guided us here in the first place.
+We go back to their camp and eat some scorpion jerky.
