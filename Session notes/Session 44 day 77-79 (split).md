@@ -14,6 +14,6 @@ The bird leads us through the city and we hear people gossip about the trouble t
 There's a building on this island and there are signs of people having been here not long ago. We go into the building and see a statue. There's also a shadowing blurred-out creature inside, multiple show up. There are in total 5 blurred-out creatures, and they all seem to be staring at us. One of them step towards us and we notice a huge Scythe on his back. It's [[Sarah Bruz]], someone the players met previously. She leads us to [[Nieta]] to explain what's going on. They're a group called the [[Palensia Pioneers]]. We can join them if we complete a small test. If we join we'll have our memories purged but we'll have protection from the mages. She sends out a letter to Maeve, Voldooron and Nim, but Nim can't be reached.
 We get escorted to a house, which if we complete the mission, will be ours.
 
-
+![[Pasted image 20240820210228.png]]
 
 ![[Pasted image 20240820202633.png]]
