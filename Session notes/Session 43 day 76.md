@@ -28,7 +28,7 @@ I have a drinking match with Zanzel, who often drinks with [[Rogul]].
 
 Celia has heard about two luxodon working as guards for a king, they were around the same age as [[Voldooron]] and started working there around the same time as he got separated from his family.
 
-Pandelume and Whitmoore suddenly notice something weird. Dubh get a weird feeling and starts feeling the creatures from his nightmare. [[Grey Haven]] from the mages of divinity shows up. Celia doesn't get time stopped and stands up. Suddenly 3 [[Nuali Hunters]] show up and silence spells gets cast. A golden winged creature appears from out the windows.
+Pandelume and Whitmoore suddenly notice something weird. Dubh get a weird feeling and starts feeling the creatures from his nightmare. [[Reliah Lueveen]] turns into [[Grey Haven]] from the mages of divinity, as he was disguised. Celia doesn't get time stopped and stands up. Suddenly 3 [[Nuali Hunters]] show up and silence spells gets cast. A golden winged creature appears from out the windows.
 Grey Haven is holding the masters of the ravens in a spell. Celia casts power word kill on Pandelume and he's dead. She tells maeve that he cannot live because of what he knows.
 We attack the intruders, but Celia is trying to get Maeve to let them kill all the Ravens.
 [[Master forklite]] rides the golden creature towards the restaurant and a huge sky ship. It's the mages of divinity.

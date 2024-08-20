@@ -2,11 +2,11 @@ In the dark arena we're fighting mirror images of our selves, and Maeve stabbed 
 We pulled glowing crystals out of the pillars.
 
 We see a man dressed in black with raven-theme gear. He's very pale with dark brown beard and hair in a pony tail. He has some leather armor on and has a large crow on his shoulder.
-Next to him is a tiny Lizard (Zim) about half his size. White scale and an angled hat.
+Next to him is a tiny Lizard [[Zim]] about half his size. White scale and an angled hat.
 
 Dubh brings a message to [[Master Whitmoore (dead)]]. A man, the players met at the [[Heaven Manor]], from the [[Mages of Divinity]] who's Whitmoores old professor.
 
-Zim, the lizard, walks up to me and starts to grow and turn into an image of me and can cast my spells. He heals us up.
+[[Zim]], the lizard, walks up to me and starts to grow and turn into an image of me and can cast my spells. He heals us up.
 
 Dubh asks why the [[Mages of Divinity]] would be hunting us so much.
 
