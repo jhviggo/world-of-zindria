@@ -26,3 +26,5 @@ We talk to Wander again. The guild has portals we can take and one of them can t
 
 Before we leave Wander tells us that People who knew [[Master Pandelume (dead)]] will slowly loose their memories of him. This is because of Wander's deal with him.
 He also says that they sometimes have meetings in the war room and we'd have to pick someone to speak for us.
+
+The lever for the portal is between the legs of the statue of Wander... We go pull the lever an go through. We're now in [[Folksheaven]], it's a huge white stone-work and wood work city with a large harbor. It's the biggest city we've been in. There are multiple temples and I know that there are multiple religions in the region. And we're standing in a tower of one of the temples.
