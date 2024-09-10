@@ -21,3 +21,8 @@ I talk about my mom and as I think back, I remember that Wander mentioned a feud
 
 We ask Maeve about what Wander said. Maeve says it's her fault we're in the situation we're in with Celia. An order came to her house but Maeve ran away, and then came back for Celia but she was taken. It was the [[Knights of Purity]] in the [[Order of Purification]] that came for them. They hunt people who have certain kinds of magic or views that don't align with the country.
 So most likely it's the Knights that control [[Celia de Luinn]]. and at [[Aroma Atlas]] said she wanted revenge for her people. And that's why Celia killed everyone at the Atlas who had the mark.
+
+We talk to Wander again. The guild has portals we can take and one of them can take us to Vasselheim. But the portals change after every use, so to get back we have to break one of the crystals Wander gives us and a Raven will appear and lead us back.. To use the portal we pull the lever at the alter.
+
+Before we leave Wander tells us that People who knew [[Master Pandelume (dead)]] will slowly loose their memories of him. This is because of Wander's deal with him.
+He also says that they sometimes have meetings in the war room and we'd have to pick someone to speak for us.
