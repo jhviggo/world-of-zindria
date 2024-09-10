@@ -3,4 +3,3 @@
 * we got to the hideout of the ravens, looking for [[Master Whitmoore (dead)]]
 * we dropped down into the caverns and murdered Gnolls
 * we've cleared out the majority of the hideout except for the captain and his three guards
-* 
