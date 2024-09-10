@@ -3,7 +3,7 @@
 - nickname: Fluffy
 - age: **160**
 - height: 155cm
-- grew up: western [[Vasselheim]] secluded outside of [[Mudwip]]
+- grew up: in [[Ashbalt Grove]] western [[Vasselheim]] secluded outside of [[Mudwip]]
 - part of the [[Grass Blades Order]]
 - worshippes an ancient spirit of the lands named [[Zargeth]]
 - father is dead - [[Dereks Wildmane]]
