@@ -3,6 +3,15 @@ I go study the papers, Dubh looks into the book he found in [[Master Whitmoore (
 The ingredients in the screaming liquid are very forbidden. It's a combination of alchemy and soul craft. That also makes sense in the way his teleportation works, as he switches place with a person. He has to sacrifice souls for his potions.
 Maeve is looking at her stone, as again is seeing the starry sky with a cloudy shadow in it. She figured that the shadow is a anti-scrying spell.
 
-As Dubh goes to bed he hears an excited snarling. It's the sound of the demon he made a pact with. The voices says "they'll take over for this one" and Voldooron hears steps going down the stairs. he sneaks to the door and hides, he sees Dubh walking towards the main entrance. It seems like there are two bodies on one on Dubh, as if something is holding him up, puppeteering him. As he walks, it appears and disappears from Dubh's body. His teeth are dripping golden blood, and the shadow creature is 20cm taller than Dubh. It is [[R]]
+As Dubh goes to bed he hears an excited snarling. It's the sound of the demon he made a pact with. The voices says "they'll take over for this one" and Voldooron hears steps going down the stairs. he sneaks to the door and hides, he sees Dubh walking towards the main entrance. It seems like there are two bodies on one on Dubh, as if something is holding him up, puppeteering him. As he walks, it appears and disappears from Dubh's body. His teeth are dripping golden blood, and the shadow creature is 20cm taller than Dubh. It is [[Raz'ir]].
 Dubh goes through the portal and Voldooron calls out to us. We all run through down and through the portal.
 We see Dubh attack the god [[Vander]] but all his attacks just phase through his body. All the other people take up their weapons, but Vander waves them off. Vander absolutely smacks Dubh.
+Vander is just dodging the attacks are is calm. He then attacks Dubh again and yeets Raz'ir out of his body, as Dubh lets the spirit go.
+Vander tell Dubh that Raz'ir is the creature that has been haunting Dubh's dreams. Raz'ir is more like a ghost or revenent than a god.
+He says that Dubh is part of the Hell Hunters, they were "nasty little cornered animals" in Vander's words. They took desperate solutions in the Cataclysm. Some refer to Raz'ir as The God hunter.
+Vander allows us each to ask one question he would answer. I ask if my family is still alive and he says that my mother is alive.
+He says that the vengence in Dubh fueled Raz'ir but he couldn't say if Dubh should embrace or reject it.
+Voldooron asks who in his family is still alive. Vander says memories are also considered alive, and Voldooron has memories of his family and a certain creature, that's the left of its kind. He also mentions two gods of sort, but doesn't elaborate, but does mention something about Voldooron not being alive for years.
+Maeve asks why the sky monarch sent someone to their house. Maeve's family heritage is part of a blood line that the monarchs fear, the Blood or black Butcher? Her grandfather, and the empire feared him.
+
+Level 7 boyyyss!!
