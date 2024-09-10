@@ -1,1 +1,1 @@
-We wake up in the house and talk about what happened. 
+We wake up in the house and talk about what happened. Maeve found a bunch of papers in [[Reliah Lueveen]]'s house that showed that they were ordering tools and a bunch of workers. She also found a bottle of the screaming liquid that we found a long time ago in the box in the broken cart. There were also papers on how the liquid was made.
