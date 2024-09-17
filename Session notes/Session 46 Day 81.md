@@ -1,2 +1,3 @@
 We start off on the top of one of the templates overseeing the city.
 We take the stairs down from the tower, at the bottom we see two guards in black cloaks. The inside of the church is covered in a vail, which obfuscates our appearance. We see a sigil in the church and it belongs to [[Lila the Dusk Maiden]]. 
+As we leave the temple, a hooded figure with a panther stands up and walks towards us. It's Ez, the PC who left just as I joined. She has been away for 2 months training. She was the one [[Wander]] asked us to meet.
