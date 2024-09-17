@@ -1,2 +1,2 @@
 We start off on the top of one of the templates overseeing the city.
-We take the stairs down from the tower, at the bottom we see two guards in black cloaks. 
+We take the stairs down from the tower, at the bottom we see two guards in black cloaks. The inside of the church is covered in a vail, which obfuscates our appearance. We see a sigil in the church and it belongs to [[Lila the Dusk Maiden]]. 
