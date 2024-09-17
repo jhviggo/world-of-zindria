@@ -7,10 +7,9 @@
 - part of the [[Grass Blades Order]]
 - worshippes an ancient spirit of the lands named [[Zargeth]]
 - father is dead - [[Dereks Wildmane]]
-- mother is gone (presumed dead) - [[Mayrin Wildmane]]
+- mother is gone (presumed dead, but she's not!) - [[Mayrin Wildmane]]
 - grew up with wolves after parents died/disappeared
 - has an affinity for shapeshifting
-
 
 # During the campaign
 I met with [[lukumoreh]] and found out that [[Zargeth]] tricked me to try and kill [[lukumoreh]]. But instead of killing him I helped him, and basically denounced my faith. He gave me an amulet to block my connection to [[Zargeth]] temporarily and would have to solve that.
