@@ -1,3 +1,4 @@
+* Bard / Fighter
 * luxodon (elephant race)
 * Got separated from his family 5-6 years ago
 	* His father was a smith but died

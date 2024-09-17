@@ -1,3 +1,4 @@
+* Warlock / Bladesinger Wizard
 * [[Master Pandelume (dead)]]'s apprentice
 * part of the [[Forsaken Ravens]] group
 * has black fur, which is uncommon for tabaxi
