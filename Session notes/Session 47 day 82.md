@@ -1,1 +1,2 @@
 We leave Lorium in the morning and continue towards Gradia. Dubh realizes that one more of the [[Forsaken Ravens]] might be alive, as they knew a guardsman who wasn't at the party at [[Aroma Atlas]]. It's the guard that Dubh met at the Mansion that taught him to use a crossbow.
+Dubh goes up to tell a story to [[Rafael von brokli]] 
