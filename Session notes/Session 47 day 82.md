@@ -10,6 +10,7 @@ We continue towards Mudwip and ride through the night.
 Dubh calls sending to contact the guard they met at the Mansion, and he's still alive. He had moved to [[Thamor]] as he was no longer employed by the Ravens.
 As we get close to Mudwip we get into a small forest, and Azuth notices that some of the trees are taking over and overgrowing the local trees. These chunky trees are much wider than they're supposed to be based on their height. They must have grown unnaturally fast.
 In the morning we meet multiple caravans but the forest isn't super dense yet.
-Azuth knows that Ashbalt fores isn't supposed to grow east of the riven near Mudwip, having the ashbalt trees grow on this side might break some elven pacts.
+Azuth knows that Ashbalt forest isn't supposed to grow east of the riven near Mudwip, having the ashbalt trees grow on this side might break some elven pacts.
 We see a horse fully packed up and it's one of the guard horses that patrol the streets, but there's no rider. We see an arrow stuck in the saddle and blood on the horse's leg as it was shot. The arrow is from a large bow.
 Ez meditate to try and locate any enemies around her. She sense around 8-9 elves in the direction we're going.
+Ruru flys out and sees 3 carts, 1 with lumber and a few dead people and maybe some alive ones. We decide to walk there and talk to the elves.
