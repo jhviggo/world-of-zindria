@@ -1,0 +1,1 @@
+We leave Lorium in the morning and continue towards Gradia. 
