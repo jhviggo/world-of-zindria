@@ -17,3 +17,5 @@ Ruru flys out and sees 3 carts, 1 with lumber and a few dead people and maybe so
 One of the elves is a [[Inchanti Hunter]] low level hunter of the grass blades and he comes out to talk to us.
 Voldooron stepped forward to talk to one of the elves, but they shot at him so Dubh immediately shot back, so combat starts.
 After the fight 2 of the hunters escaped, but of the dead ones I don't recognize any of them. 2 lumberjacks survive and there's a blond woman with dreadlocks and bracelets/trinkets on.
+One of the lumberjacks gives us 10g 5s he gathered from the carts around.
+The woman writes a little letter for us and pulls a centipede from her hair to seal the letter. She says that the letter will get us into the [[Arkivian Archives]] and she's [[Juella spore]] a professor for the archives. She's hear to check out the trees that are growing. She's specializing in animal behavior and fungus and spores.
