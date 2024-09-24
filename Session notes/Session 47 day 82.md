@@ -14,3 +14,4 @@ Azuth knows that Ashbalt forest isn't supposed to grow east of the riven near Mu
 We see a horse fully packed up and it's one of the guard horses that patrol the streets, but there's no rider. We see an arrow stuck in the saddle and blood on the horse's leg as it was shot. The arrow is from a large bow.
 Ez meditate to try and locate any enemies around her. She sense around 8-9 elves in the direction we're going.
 Ruru flys out and sees 3 carts, 1 with lumber and a few dead people and maybe some alive ones. We decide to walk there and talk to the elves.
+One of the elves is a [[Inchanti Hunter]] low level hunter of the grass blades and he comes out to talk to us.
