@@ -16,3 +16,4 @@ Ez meditate to try and locate any enemies around her. She sense around 8-9 elves
 Ruru flys out and sees 3 carts, 1 with lumber and a few dead people and maybe some alive ones. We decide to walk there and talk to the elves.
 One of the elves is a [[Inchanti Hunter]] low level hunter of the grass blades and he comes out to talk to us.
 Voldooron stepped forward to talk to one of the elves, but they shot at him so Dubh immediately shot back, so combat starts.
+After the fight 2 of the hunters escaped, but of the dead ones I don't recognize any of them. 2 lumberjacks survive and there's a blond woman with dreadlocks and bracelets/trinkets on.
