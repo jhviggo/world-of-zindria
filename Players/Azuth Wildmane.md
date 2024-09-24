@@ -60,7 +60,7 @@ After the event I decided that I couldn't stay, as nowhere felt safe. Mudwip had
 # Leaving for Custonia
 * Traveled to Custonia to get to Sundale Kingdom
 * Befriended the locals and helped them with tasks from healing to hunting
-* Befriended a local brew master and got a taste for beer
+* Befriended a local brew master Garin and got a taste for beer
 * Had otherwise only tried berry wine in small quantites in the elven grove
 * Also befriended a dock worker named Darian, after I helped his family
 * After some time I told him of my quest to Sundale Kingdom and he arranged to have me snuck on board an airship to Sundale kingdom.
