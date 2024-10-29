@@ -11,6 +11,8 @@
 * Ancestors were Blacktooth alter
 * Cursed by the Blackmane curse (nightmares)
 
+![[Pasted image 20241029200747.png]]
+
 ### Memories from the Crimson Savana
 Dubh has good memories of this area. He remembers seeing the cloud from the crimson storm and he remembers a tabaxi woman with black fur. He remembers being held by the edge on a cliff, looking over the desert at the storm with his mom. Finally he remembers two fangs, dripping golden blood (part of his nightmare from a Leonin or Tabaxi), before his memories fade away.
 
