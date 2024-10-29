@@ -1,4 +1,4 @@
-Achive in [[Cross Guard]] in [[Vasselheim]]
+Achive in [[Crossguard]] in [[Vasselheim]]
 professors include:
 * [[Juella spore]]
 * [[Zon Von Donzil]]
