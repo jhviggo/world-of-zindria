@@ -28,3 +28,4 @@ We get free beds to sleep in because of Voldoorons amazing performance.
 We ask Messina about here abilities and she summons her bone [[Soulknife]] she uses in combat. She's a rogue-like druid.
 I try to listen for the voice I heard in my vision. The people around me have quite a refined accents but the voice in my vision was from an older man not from here. Messina knows that he sounds like [[Detric Ironbark]], one of the counselers of the [[Aborial counsel]]. The third circle is called the [[Deep Root Keepers]].
 We decide that tomorrow we'll get up early, get breakfast, go shopping and then head into the woods towards the Grass Blades.
+As we go north north-west to get to the old bridge which leads into Ashbalt Forest.
