@@ -33,3 +33,5 @@ A vine-copy of one of the [[moon weavers]] members [[Detric Ironbark]] forms and
 [[Thalenor Brightclave]] aka The Midnight Spear, Eldest member of the Grass blades.
 We assume that Detric might actually be dead, since [[Messina Moonglade]] hasn't heard from the Moon Weavers. 
 [[Zemberlen Seat]] is the next area where we can find [[Illiana Hawkside]].
+
+We ask Messina about her fighting style. She hasn't had any official training like a school. A pack was made which she's no longer following, so she's repaying for it, which affects the way she fights.
