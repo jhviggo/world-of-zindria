@@ -2,7 +2,7 @@
 - name: **Azuth Wildmane**
 - nickname: Fluffy
 - age: **160**
-- height: 155cm
+- height: 155cm (5 feet 1 inch)
 - grew up: in [[Ashbalt Grove]] western [[Vasselheim]] secluded outside of [[Mudwip]]
 - part of the [[Grass Blades Order]]
 - worshippes an ancient spirit of the lands named [[Zargeth]]
