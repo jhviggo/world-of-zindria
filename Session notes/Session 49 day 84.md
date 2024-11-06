@@ -22,3 +22,14 @@ next firefly I see my dad and I training and shape-shifting. I see a ritual with
 Visions of me being tested, tortured, trained and me going through rituals and all sorts of horrible things, but I only remember the fun training with my dad, none of all of this bad stuff.
 more visions of another trial where my dad argues, it's an alter, but my father holds me back and stops me from taking the trial.
 The next memory is of [[Illiana Hawkside]] giving me an amulet of [[Zargeth]]. After this is the first thing I remember from my life.
+
+I tell the others about my visions. Dubh rolls and it seems that my trials and tests were preparing me for something. Like they were preparing me for something.
+I go up and touch the armor, it looks like leather but it's as tough as steel. It's acid green with golden sigils and overlapping scale armor. Medium armor +3 AC in wildshape, and twice per long rest I can cast a spell in wildshape that does not need consentration.
+A letter falls out with a sigil of Moon City in [[Zarephine Ca'al]]. it's from my mother saying she's safe and sound, and miss my father and I.
+
+I tell the others about how my mother and I walked to Mudwip and found my father strung up, but it was a false memory. It was really [[Illiana Hawkside]] that took me to see my dad's corpse.
+Suddenly we all hear a voice behinds us and it's the nobel man. he tells me to come outside. He calls me the promised/chosen one and says I failed my mission. That my father was a more nobel man. he says that it was him who sent me out on the suicide mission to kill [[lukumoreh]].
+A vine-copy of one of the [[moon weavers]] members [[Detric Ironbark]] forms and he beheads it.
+[[Thalenor Brightclave]] aka The Midnight Spear, Eldest member of the Grass blades.
+We assume that Detric might actually be dead, since [[Messina Moonglade]] hasn't heard from the Moon Weavers. 
+[[Zemberlen Seat]] is the next area where we can find [[Illiana Hawkside]].
