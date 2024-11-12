@@ -1,0 +1,1 @@
+We get up and walk into [[Ishal Hamlet]] where we'll find [[Illiana Hawkside]]. We walk down the main street/path and the elves around us are looking at us and know what's about to happen and they're whispering amongst themselves. They keep saying [[Zuth]] referring to Azuth, probably meaning betrayer. 
