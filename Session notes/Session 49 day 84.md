@@ -35,3 +35,6 @@ We assume that Detric might actually be dead, since [[Messina Moonglade]] hasn't
 [[Zemberlen Seat]] is the next area where we can find [[Illiana Hawkside]].
 
 We ask Messina about her fighting style. She hasn't had any official training like a school. A pack was made which she's no longer following, so she's repaying for it, which affects the way she fights.
+
+We continue towards [[Ishal Hamlet]], the bigger city where's well now find [[Illiana Hawkside]] in the main hall. We know that the elves have already spotted us and are following us, but they're not intervening with us since [[Thalenor Brightclave]] wants to fight us and give it our best try.
+So we set camp outside the city waiting for daylight.
