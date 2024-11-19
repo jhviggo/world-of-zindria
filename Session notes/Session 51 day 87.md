@@ -6,3 +6,4 @@ On the way we get ambushed by [[Grass Blades Order]] rangers. We find out that t
 I get a longbow and 38 arrows.
 We rest and summon fey horses to ride on. I see mist in the distance and see [[lukumoreh]]. The mist disapates and I see roots intertwining betwwen themselves and they're moving around overgrowing each other. They're moving towards us and I feel the sharp pain in my neck come back. I feel roots growing in my spine and back and feel the roots grabbing onto my insides. I roll good and don't get hurt. I sense that [[Zargeth]] doesn't want to turn or consume me, it's weird. I get a sense of familiarity/somberness. As we're getting closer to [[Zargeth]], [[lukumoreh]] can no longer help us staying hidden, so stealth doesn't make sense.
 We get ambushed again by the rangers and I get shot again, again. Dubh fireballs them and we ride on. 
+Ez rolled a Nat20 to hit the stupid bird following us, so we won't get any more encounters today
