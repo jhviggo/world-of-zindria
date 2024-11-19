@@ -1,0 +1,2 @@
+As we have fought [[Illiana Hawkside]] we hear guards coming up the tree tower and we decide to use featherfall to jump off the edge of the tree and run into the forest.
+[[Luna Longleaf]] managed to escape, so we still need to kill her, [[Detric Ironbark]] and [[Thalenor Brightclave]]. We decide to walk north for a few hours to get far away from [[Ishal Hamlet]] and set up a camp. We'll now heard towards another nearby city called [[]]
