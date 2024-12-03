@@ -1,0 +1,1 @@
+At noon we are about to arrive at [[Deep Root Keepers]] camp near [[Kitricil]].
