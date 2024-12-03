@@ -1,1 +1,1 @@
-At noon we walking towards he [[Deep Root Keepers]] camp near [[Kitricil]] and by the [[Fogmount sea]]. We get to a clearing and see an actual paved road going north and south. 
+At noon we walking towards he [[Deep Root Keepers]] camp near [[Kitricil]] and by the [[Fogmount sea]]. We get to a clearing and see an actual paved road going north and south. As we follow the road but in the forest, we see a patrol of 5ish elves with backpacks riding big cats.
