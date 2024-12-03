@@ -1,1 +1,1 @@
-At noon we are about to arrive at [[Deep Root Keepers]] camp near [[Kitricil]].
+At noon we walking towards he [[Deep Root Keepers]] camp near [[Kitricil]] and by the [[Fogmount sea]]. We get to a clearing and see an actual paved road going north and south. 
