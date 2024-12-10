@@ -1,0 +1,1 @@
+We initiate the fight with [[Luna Longleaf]].
