@@ -1,2 +1,4 @@
 We initiate the fight with [[Luna Longleaf]].
-We kill her and black mist pours from her wounds. Dubh know that it's a corruptions and something has defiled her mind and will. 
+We kill her and black mist pours from her wounds. Dubh know that it's a corruptions and something has defiled her mind and will.
+We now look for the tunnel from the [[Weavers Retreat]] to the Palace. We realize that the three is a gateway. I touch the tree and feel a heartbeat and magical pull. I feel a fait hollowness from the tree Dubh is standing near. I go touch the other one and I feel a hum, as I pull away from the tree. The root open up for a tunnel. We go through it.
+We set up camp in the tunnel with [[Salamon Deeproot]] digging out a hollow area for us.
