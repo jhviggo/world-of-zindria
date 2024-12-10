@@ -29,7 +29,7 @@ A letter falls out with a sigil of Moon City in [[Zarephine Ca'al]]. it's from m
 
 I tell the others about how my mother and I walked to Mudwip and found my father strung up, but it was a false memory. It was really [[Illiana Hawkside]] that took me to see my dad's corpse.
 Suddenly we all hear a voice behinds us and it's the nobel man. he tells me to come outside. He calls me the promised/chosen one and says I failed my mission. That my father was a more nobel man. he says that it was him who sent me out on the suicide mission to kill [[lukumoreh]].
-A vine-copy of one of the [[moon weavers]] members [[Detric Ironbark]] forms and he beheads it.
+A vine-copy of one of the [[moon Weavers]] members [[Detric Ironbark]] forms and he beheads it.
 [[Thalenor Brightclave]] aka The Midnight Spear, Eldest member of the Grass blades.
 We assume that Detric might actually be dead, since [[Messina Moonglade]] hasn't heard from the Moon Weavers. 
 [[Zemberlen Seat]] is the next area where we can find [[Illiana Hawkside]].
