@@ -1,3 +1,3 @@
 It's time to kill [[Thalenor Brightclave]] soon.
 We wake up in the tunnel with [[Salamon Deeproot]] and [[Keep ortrom]].
-We get to the end of the tunnel and see a basement room of the palace, we enter and walk through a magical barrier. It's an illusion which hides the entrance of the tunnel. 
+We get to the end of the tunnel and see a basement room of the palace, we enter and walk through a magical barrier. It's an illusion which hides the entrance of the tunnel. We open the door and go up the stairs. The inside of the castle is made of [[Dark mold]] which darkens the castle a bit. There are rivers and channels running through the hall with grass on the floor and trees for pillars. 
