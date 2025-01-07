@@ -11,3 +11,4 @@ I even saw the sundering of the world, as the elves were thrown out of [[Ca'el]]
 In the heart gem I see a new vision appear, a woman in a small homestead and a small wooden figure, that I cut in my youth. It's my mother looking around her and I see a man come into the home, and I see a blackened scar on her face. It's the sickness that [[Thalenor Brightclave]] gave my mother when she left. Behind the man also comes in a young elven girl with a little homemade amulet, giving it to the man. 
 Then a new vision, a landscape of the city and I see a building where my mom lives in by a clear lake in the mountainous woods. The city sits on a flying island in the clouds, that's the [[Moon City]] in [[Ca'el]].
 A new vision I see my friends in their little tent that Dubh put up. 
+If we ever come around [[Draconia]] we can meet [[Salamon Deeproot]] and [[Keep ortrom]].
