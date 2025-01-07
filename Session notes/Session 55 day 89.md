@@ -1,2 +1,2 @@
 After killing [[Thalenor Brightclave]] a dark smoke leaves his body and we hear a voice. "Thank you for ritting me of a spent tool. This will not be the last time we see each other" and the smoke disppears. 
-We're also no 
+I feel a pull from the water behind the throne. I walk out into the water and get pulled in by enourmous roots, deep down into the darkness. Voldooron held on to the rope he had tied around me.
