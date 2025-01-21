@@ -1,1 +1,2 @@
 We wake up after a greater short rest in the Opulise Palace. We decide to summon 8 owls and fly out of the city, there are balistas near the palace and sea, but we fly inland and get out of range quickly.
+We rode owls twice, for a total of two hours and ended up finding a small abandoned hut, where we rest. 
