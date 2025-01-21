@@ -1,1 +1,1 @@
-We wake up after a greater short rest in the Opulise Palace. 
+We wake up after a greater short rest in the Opulise Palace. We decide to summon 8 owls and fly out of the city, there are balistas near the palace and sea, but we fly inland and get out of range quickly.
