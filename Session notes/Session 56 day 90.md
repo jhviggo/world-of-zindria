@@ -1,0 +1,1 @@
+We wake up after a greater short rest in the Opulise Palace. 
