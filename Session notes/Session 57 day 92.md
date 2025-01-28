@@ -10,4 +10,4 @@ We had a drinking contest and the winners were
 1. voldooron
 2. Azuth
 3. Brit
-I cheated a little by using enhance ability.
+I cheated a little by using enhance ability. Ez spies on Brit working out, creepy.
