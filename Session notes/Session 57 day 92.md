@@ -11,3 +11,4 @@ We had a drinking contest and the winners were
 2. Azuth
 3. Brit
 I cheated a little by using enhance ability. Ez spies on Brit working out, creepy.
+After 2 days we get to Crossguard, it's a large city filling the island on the river, overhanging a waterfall with a bridge on either side of the river. 
