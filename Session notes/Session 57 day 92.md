@@ -11,4 +11,4 @@ We had a drinking contest and the winners were
 2. Azuth
 3. Brit
 I cheated a little by using enhance ability. Ez spies on Brit working out, creepy.
-After 2 days we get to Crossguard, it's a large city filling the island on the river, overhanging a waterfall with a bridge on either side of the river. 
+After 2 days we get to Crossguard, it's a large city filling the island on the river, overhanging a waterfall with a bridge on either side of the river. This used to be the only way to cross from the northern to southern Vasselheim. This city is the old capitol of Vasselheim, but because it's on an island it couldn't grow forever. So once it filled the island [[Folksheaven]] got bigger and became the capitol as airships were invented.
