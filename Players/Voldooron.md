@@ -1,4 +1,5 @@
 * Bard / Fighter
+* 8 feet 2 inches
 * luxodon (elephant race)
 * Got separated from his family 5-6 years ago
 	* His father was a smith but died
