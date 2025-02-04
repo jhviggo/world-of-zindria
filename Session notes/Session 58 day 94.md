@@ -1,0 +1,1 @@
+We start our session in the city of [[Crossguard]]. 
