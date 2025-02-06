@@ -4,3 +4,5 @@ I got a book on "Current political affairs of Vasselheim"
 
 Vasselheim is a republic. There's a central seat of chansellors with the voting power over the nation. called the baronial assembly with 160 delegates which can vote. 140 of them are dedicated to the barons and the rest are the chansellors and nobilities. Sometimes the bannerlords will also be called in to vote with 100 deligations and the emporer also has 100 votes. one of the barons is called [[Allistar Whitmoore]] probably in family with [[Master Whitmoore (dead)]].
 This system stems from the disconnection of the previous lord of Vasselheim, so one person didn't have the power. He could no longer lead properly so he created the baronies. under the barons are the chansellors and then the lords.
+
+![[Pasted image 20250204222142.png]]
