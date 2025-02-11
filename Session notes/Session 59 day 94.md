@@ -4,4 +4,4 @@ We try to just walk by them, but as we get near the diplomat ask to speak with u
 We start heading off to the center of town we walked past on the way to the archives, we walk path the obsidian ward, which is mostly houses and residential areas. We cross a bridge and get to an industrial-ish area, they're mostly workshops and production, not really store fronts. We ask a guard and he mentions the [[Hilton Inn]] which we can also stay at, but Silverfall is more popular. 
 We go into a jeweler and buy 3 diamonds. Afterwards we go to the Silverfall Inn and see a bunch of nicely dressed goblins. Dubh asks about [[Crackenguard]] as he has to go there eventually.
 We go into the bar in the inn and there's a bunch of merchants chatting. Voldooron starts playing his drum and rolls a 26 god damn. We chill and take a long rest.
-In the morning we get up and head to the archives to [[Prof. Tiffen abbermon]]'s office. 
+In the morning we get up and head to the archives to [[Prof. Tiffen abbermon]]'s office. We get ready for a ritual to draw out [[Raz'ir]] from Dubh and we all get in the circle so we can help and see his memories.
